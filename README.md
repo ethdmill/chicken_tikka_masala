@@ -77,8 +77,8 @@ The marinade will still be effective even if started just ten minutes before coo
 1. To start, I recommend going ahead and divvying up your spices into their own small bowls for easy access while your pan is preheating. 
 
 * Spice Blend Alpha: garam masala, cumin, turmeric, coriander
-* Spice Blend Delta: chili powder, salt
-* Spice Blend Gamma: literally just the brown sugar
+* Spice Blend Beta: chili powder, salt
+* Spice Blend Delta: literally just the brown sugar
 
 2. Pan-fry the chicken (oil optional, see below) in a high-walled sauté pan over medium-high heat for a few minutes. This can (and probably should) be done in batches to avoid over-crowding and steaming, unless your pan is wide enough. You don't necessarily have to cook the chicken all the way through, since it'll be simmering in the sauce for a while. Just make sure you get all of that marinade in there, too. Do NOT waste it. Once the chicken is done, put it aside and keep warm. I usually do this by popping it in the microwave and leaving it there. 
 
@@ -88,9 +88,9 @@ The marinade will still be effective even if started just ten minutes before coo
 
 5. Add Spice Blend Alpha to the party, making sure to sprinkle over the whole affair for even coverage, and then sauté everything for 30 seconds to a minute, or until extremely fragrant and reminiscent of why people say things like, "Cooking Indian food at home makes your whole house smell like Indian food for three days."
 
-6. Add the tomato puree and Spice Blend Delta, then stir to combine, scraping everything back off the bottom. Take the heat down to just under medium, or wherever you feel comfortable simmering it at. Simmer that beautiful redness for 15-20 minutes, stirring occasionally to prevent potential burning. The color should deepen and the aromas and flavor will also intensify.
+6. Add the tomato puree and Spice Blend Beta, then stir to combine, scraping everything back off the bottom. Take the heat down to just under medium, or wherever you feel comfortable simmering it at. Simmer that beautiful redness for 15-20 minutes, stirring occasionally to prevent potential burning. The color should deepen and the aromas and flavor will also intensify.
 
-7. Stir in both the cream and Spice Blend Gamma. Marvel at how genuinely beautiful it is to see the swirls of cream cascading over and throughout the tomato mixture. Mix thoroughly, then let simmer for a couple minutes.
+7. Stir in both the cream and Spice Blend Delta. Marvel at how genuinely beautiful it is to see the swirls of cream cascading over and throughout the tomato mixture. Mix thoroughly, then let simmer for a couple minutes.
 
 8. Add the chicken very carefully (because if you go too fast, it WILL splash and bite you in the ass), making sure to get every last drop of juice and cooked marinade in there. Once, again, stir thoroughly, ensuring that the chicken is as submerged as possible. This is also the part where it turns neon orange, which is not only dope, but also extremely satisfying. Simmer your beautiful concoction for about 10-15 more minutes.
 
