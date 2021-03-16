@@ -94,7 +94,7 @@ The marinade will still be effective even if started just ten minutes before coo
 
 8. Add the chicken very carefully (because if you go too fast, it WILL splash and bite you in the ass), making sure to get every last drop of juice and cooked marinade in there. Once, again, stir thoroughly, ensuring that the chicken is as submerged as possible. This is also the part where it turns neon orange, which is not only dope, but also extremely satisfying. Simmer your beautiful concoction for about 10-15 more minutes.
 
-9. Kill the heat, and serve over/with whatever you'd like. My preference is noted below, along with a recommendation.
+9. Kill the heat, and serve this hot jazz over/with whatever you'd like. My preference is noted below, along with a recommendation.
 
 ### Notes
 
