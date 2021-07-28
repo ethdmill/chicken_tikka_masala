@@ -57,7 +57,7 @@ The marinade will still be effective even if started just ten minutes before coo
 ### Ingredients
 
 * marinated chicken
-* 2 tbsp butter
+* 2 tbsp ghee (or butter)
 * 1 large yellow onion (diced)
 * 1½ tbsp garlic (minced)
 * 1 tbsp ginger (grated)
@@ -82,7 +82,7 @@ The marinade will still be effective even if started just ten minutes before coo
 
 2. Pan-fry the chicken (oil optional, see below) in a high-walled sauté pan over medium-high heat for a few minutes. This can (and probably should) be done in batches to avoid over-crowding and steaming, unless your pan is wide enough. You don't necessarily have to cook the chicken all the way through, since it'll be simmering in the sauce for a while. Just make sure you get all of that marinade in there, too. Do NOT waste it. Once the chicken is done, put it aside and keep warm. I usually do this by popping it in the microwave and leaving it there. 
 
-3. Throw the butter into the pan and, using the (hopefully present) fond on the bottom, sauté the onion until translucent and very fragrant, making sure to scrape everything up.
+3. Throw the ghee/butter into the pan and sauté the onion until translucent and very fragrant, making sure to scrape everything up if applicable.
 
 4. Once the onion has some good aromas and colors happening, add the garlic and ginger, then sauté for an additional minute or two. Do NOT burn the garlic, or you will have to start over. This is not a threat; it's a promise. And also a threat. 
 
